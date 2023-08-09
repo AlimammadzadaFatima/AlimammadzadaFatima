@@ -1,5 +1,5 @@
 ### Fatima Alimammadzada💫
-### ⚡ why do java programmers have to wear glasses? / -Cause they don't C#.(see sharp)
+### ⚡🌱 I’m currently learning ..
 <!-- 
 **AlimammadzadaFatima/AlimammadzadaFatima** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
